@@ -13,4 +13,6 @@ mypcfirstclass@gmail.com
 
 > Discord > 
 
+> https://discord.gg/Gc6jUKmM9y
+
  
